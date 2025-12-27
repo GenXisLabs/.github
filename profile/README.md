@@ -15,7 +15,7 @@ We're passionate about creating solutions in:
 ## 📫 Contact Us
 📍 **Sri Lanka**  
 📧 **contact@genxislabs.com**  
-🌐 [genxislabs.com]((https://www.genxis.lk/))
+🌐 [genxis.lk](https://genxis.lk/)
 
 ---
 
